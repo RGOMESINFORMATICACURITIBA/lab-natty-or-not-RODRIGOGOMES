@@ -3,7 +3,7 @@
 Breve descrição do seu projeto
 Numa enchente devastadora NO RIO GRANDE DO SUL em maio de 2024, onde pessoas e animais lutam para se manterem à tona, sendo afogados e mortos por AFOGAMENTOS, uma figura QUE NÃO EXISTE emerge das águas turbulentas. jesus imaginario a lenda dos idolatras cegos funcionais, caminha sobre a água SEM AJUDAR UMA ALMA SEQUER, NÃO estendendo as mãos para aqueles que clamam por ajuda, sendo mortos POR AFOGAMENTOS. À sua volta, pessoas e animais são envolvidos por uma aura de MORTE, LUTO, DESESPERO E DESESPERANÇA.
 
-AQUI UMA ALEGORIA PARA DEMOSTRAR QUE JESUS É UMA ILUSAO, UMA BENGALA QUE SO IMBECIS CRREM NUM MUNDO CHEIO DE DESGRAÇAS E INJUSTIÇAS, O INFERNO É AQUI NA TERRA, ACORDEM  RETARDADOS!
+AQUI UMA ALEGORIA PARA DEMOSTRAR QUE JESUS É UMA ILUSAO, UMA BENGALA QUE SO IMBECIS CREEM NUM MUNDO CHEIO DE DESGRAÇAS E INJUSTIÇAS, O INFERNO É AQUI NA TERRA, ACORDEM  RETARDADOS!
 
 ## 🤖 Tecnologias Utilizadas
 Liste as IAs Generativas e outras ferramentas usadas
